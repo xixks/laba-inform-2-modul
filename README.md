@@ -1,0 +1,1 @@
+# laba-inform-2-modul
